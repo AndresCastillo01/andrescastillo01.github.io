@@ -1,5 +1,3 @@
-# Jorge Andrés Castillo
-
 ## Introduction
 
 Hi! Welcome to mi CAS page, here I will be displaying my projects and
