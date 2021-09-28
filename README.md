@@ -1,4 +1,4 @@
-# andrescastillo01.github.io
+# Jorge Andrés Castillo
 
 ## Introduction
 
