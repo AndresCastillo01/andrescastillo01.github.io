@@ -9,3 +9,4 @@ Mi name is Jorge Andrés Castillo Ramírez, I was born on the City of
 Mexico in the 12th of July of 2004. My personal hobbies are drawing,
 painting, and calisthenics.
 
+[WhatsApp Image 2021-09-29 at 18 30 41](https://user-images.githubusercontent.com/91473782/135362310-4c30cfa4-09ec-49be-8bfa-52cba91730ce.jpeg)
