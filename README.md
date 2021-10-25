@@ -16,3 +16,14 @@ Mexico in the 12th of July of 2004.
 - Calisthenics
 - Photography
 - Travelling
+
+## Reflection: Plastic Arts
+
+During the transcurse of these last semesters and specially my fist IB year, I have
+been focusing on different artistics proyects that involve different thechinques, methods,
+and themes.
+
+The area of creativity has been a great opportunity to develop my skills on activities and 
+hobbies that I have passion for. Trough art I am able to find different perspectives on the
+world that I would not find either way. Art is something that forces you to think outside the
+box, explore topics that may be uncomfortable but that offer a variety of ideas and knowledge.
