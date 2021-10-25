@@ -27,3 +27,13 @@ The area of creativity has been a great opportunity to develop my skills on acti
 hobbies that I have passion for. Trough art I am able to find different perspectives on the
 world that I would not find either way. Art is something that forces you to think outside the
 box, explore topics that may be uncomfortable but that offer a variety of ideas and knowledge.
+
+One of my favorite projects for Plastic Arts is the "Day of the Death" exhibition, where we
+explore the tematic of these festive days that are very exlusive to the culture of Mexico.
+
+## Reflection: Calisthemnics
+
+Calisthemnics is a sport that requires a lot of dedication and discipline. I have been praticing 
+it for almost one year now, and we could consider many of its benefits as a result of the effort
+made. As mentioned before, developing this kind of sports are a very reliable and nice way to
+develop habits that lead into a healthy lifestyle.
