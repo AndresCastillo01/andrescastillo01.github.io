@@ -29,7 +29,11 @@ world that I would not find either way. Art is something that forces you to thin
 box, explore topics that may be uncomfortable but that offer a variety of ideas and knowledge.
 
 One of my favorite projects for Plastic Arts is the "Day of the Death" exhibition, where we
-explore the tematic of these festive days that are very exlusive to the culture of Mexico.
+explore the tematic of these festive days that are very exclusive to the culture of Mexico.
+
+In a way, I must recognize my areas of opportunity being time management one of them. Due to the
+hours spent on these types of work, they are normally left unfinished and I am aware that 
+improvement is needed.
 
 ## Reflection: Calisthemnics
 
