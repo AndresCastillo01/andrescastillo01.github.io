@@ -41,3 +41,6 @@ Calisthemnics is a sport that requires a lot of dedication and discipline. I hav
 it for almost one year now, and we could consider many of its benefits as a result of the effort
 made. As mentioned before, developing this kind of sports are a very reliable and nice way to
 develop habits that lead into a healthy lifestyle.
+
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/91473782/139490480-50c3aea6-5e4e-4ba2-abe8-d6e5f059f2cc.gif)
+
