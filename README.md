@@ -35,6 +35,9 @@ In a way, I must recognize my areas of opportunity being time management one of 
 hours spent on these types of work, they are normally left unfinished and I am aware that 
 improvement is needed.
 
+![My Post](https://user-images.githubusercontent.com/91473782/139491031-6596d5eb-f6cc-4c99-8973-1a1e4a3943fb.png)
+
+
 ## Reflection: Calisthemnics
 
 Calisthemnics is a sport that requires a lot of dedication and discipline. I have been praticing 
@@ -43,4 +46,19 @@ made. As mentioned before, developing this kind of sports are a very reliable an
 develop habits that lead into a healthy lifestyle.
 
 ![ezgif com-gif-maker](https://user-images.githubusercontent.com/91473782/139490480-50c3aea6-5e4e-4ba2-abe8-d6e5f059f2cc.gif)
+
+## Reflection: For a safe return to school
+
+During the transcurse of November 16th to November 19th, 2021 I am willing to participate in voluntary practices for public 
+schools that have an association towards Tec de Monterrey. The main objectives of these activities will be to participate in 
+capactitations in order to transfer knwoledge for valuable areas such as sanitary measures, stress management, and expression 
+of emotions.
+
+My role is to participate on eight sessions of one hour each under the name of "Cuida tu mente" or caring for your mind. Trough
+these, we will be proporcionating tools foward management the pshycological effects, and stress that are a consequence of the 
+current pandemic. The main approach will be parents, teachers, and directors since we believe they are the most vulnerable towards
+these situations.
+
+
+
 
