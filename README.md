@@ -59,6 +59,11 @@ these, we will be proporcionating tools foward management the pshycological effe
 current pandemic. The main approach will be parents, teachers, and directors since we believe they are the most vulnerable towards
 these situations.
 
+## Reflection: Building of a greenhouse
+
+Trough the collaboration of student groups such as "Terra" and "ECO" that are focused on projects that involve the enviroment, we were
+able to start the iniciative of a new greenhouse building on our school. This project required to involve many aspects such as financing,
+fund & materials raising.
 
 
 
